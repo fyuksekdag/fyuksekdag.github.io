@@ -1,1 +1,0 @@
-# fyuksekdag.github.io
